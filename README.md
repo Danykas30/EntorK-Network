@@ -1,2 +1,2 @@
 # EntorK-Network
-EntorK ntwork website i need to creat i 1 day
+EntorK ntwork website i need to creat in 1 day
